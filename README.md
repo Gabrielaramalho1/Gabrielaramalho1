@@ -7,4 +7,4 @@ Imagens geradas via COPILOT
 ebook gerado no Power Point apenas para fins de aprendizagem de formatação
 👨‍💻 Expert
 
-Gabriela Amaryllis GIgli de Oliveira Ramalho
+Gabriela Ramalho
